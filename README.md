@@ -1,5 +1,5 @@
 
-[![MasterHead](https://media.discordapp.net/attachments/706579627534974986/982101921890439218/Pornhub-Logo.png?width=1288&height=676)](https://rishavchanda.io)
+[![MasterHead](https://cdn.discordapp.com/attachments/706579627534974986/982102743403618304/286399719094211.png)](https://rishavchanda.io)
 ```console
 -------------------
 contact information
